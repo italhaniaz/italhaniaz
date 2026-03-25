@@ -9,4 +9,4 @@
 - 💬 Ask me about Linux, Python, Git, or SSH  
 - 📫 How to reach me: (italhaniaz@gmail.com)  
 - 😄 Pronouns: He/Him  
-- ⚡ Fun fact: Curious mind — always learning something new every day 🚀
+- 🌟 Fun fact: Passionate about learning something new every day. 🚀
