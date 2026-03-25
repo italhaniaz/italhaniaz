@@ -9,4 +9,4 @@
 - 💬 Ask me about Linux, Python, Git, or SSH  
 - 📫 How to reach me: (italhaniaz@gmail.com)  
 - 😄 Pronouns: He/Him  
-- ⚡ Fun fact: I love turning real-world problems into code! 🚀
+- ⚡ Fun fact: Curious mind — always learning something new every day 🚀
